@@ -1,4 +1,4 @@
-### Hi there, I'm Kassandra! 👋
+### Hi there, I'm Kassie! 👋
 
 <!--
 **KHaftner/KHaftner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
